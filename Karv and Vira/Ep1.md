@@ -24,7 +24,7 @@ Vira bowed as fae grabbed faer weaponry before hitching it on faer scabbard. “
 Vira approached the markings, and read them, a look of both success and horror on faer face.
  
 
-*Here lis Nexus Drko. Trator, insne dicttr, nd undsrbl asshl. My he nevr fnd rst.* (Translated from Drknkn Englsh:  Here lies Nexxus Drako. Traitor, insane dictator, and undesirable asshole. May he never find rest.)
+*Here lis Nexus Drko. Trator, insne dicttr, nd undsrbl asshl. My he nevr fnd rst.* (Translated from Drakonik English:  Here lies Nexxus Drako. Traitor, insane dictator, and undesirable asshole. May he never find rest.)
  
 
 “Found it. Dig.” whispered Vira. Karv then started digging. They had one job, and they couldn’t afford to fuck this up. It would mean disaster. She then hit wood, and started uncovering the coffin.  
@@ -33,7 +33,4 @@ Vira approached the markings, and read them, a look of both success and horror o
 Opening it, the lack of a stench worried her as the preserved body of an early Draconic leader stared back. Uncorking a bottle, she poured the contents over the body as Vira then lit a match and dropped it in.
  
 
-The entire coffin then burst into flames, then disintegrated as fast as it had set alight. This was the final step in a decades long ritual to cleanse the land of Nexxus' corruption.
- 
-
-**Nexxus is dead. Long Live Dragonfluxx.** 
+The entire coffin then burst into flames, then disintegrated as fast as it had set alight. This was the final step in a decades long ritual to cleanse the land of Nexxus' corruption. And they rejoyce, for Nexxus is dead.
