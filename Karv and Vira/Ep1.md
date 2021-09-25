@@ -1,6 +1,6 @@
 # Karv and Vira - Episode 1
 
-*It’s a clear, dark night on the cliffs near Drakensburg, a middling city an hour from the capital, Pyramancia. Two kitsune explorers clad in archaeological gear sit on a rocky outcrop, stargazing. The two fox-girls are in a romantic embrace, having spent years doing this job together. Little did they know their job was about to propel them to a level of notoriety they never expected.*
+*It was a clear, dark night on the cliffs near Drakensburg, a middling city an hour from the capital, Pyramancia. Two kitsune explorers clad in archaeological gear sit on a rocky outcrop, stargazing. The two fox-girls are in a romantic embrace, having spent years doing this job together. Little did they know their job was about to propel them to a level of notoriety they never expected.*
  
 
 “Karv, it’s time to get up, these ruins aren’t gonna find themselves, even though the city is pretty and shiny tonight.” spoke one in a lilted voice to faer soul-mate and partner-in-crime. “Yes Vira. We shouldn’t be slacking for Faer Holiness hirself, even if fae would be okay with us taking a short break like we did.” Karv replied in a gravelly tone, betraying her feminine appearance somewhat.
@@ -21,10 +21,7 @@ The sun started breaking over the horizon, as day began to approach. The cover o
 Vira bowed as fae grabbed faer weaponry before hitching it on faer scabbard. “Let’s go. Can’t keep Fayte waiting.” fae stated, before heading back to the outcrop. Karv then followed shortly after, sticking close in case of an ambush. They made their way back to the cropping when a small etching caught Karv’s eye. She tapped Vira’s shoulder and motioned to it, and Vira acknowledged. Fae knew noisemaking would cause trouble, hence the cautionary approach.
  
 
-Vira approached the markings, and read them, a look of both success and horror on faer face.
- 
-
-*Here lis Nexus Drko. Trator, insne dicttr, nd undsrbl asshl. My he nevr fnd rst.* (Translated from Drakonik English:  Here lies Nexxus Drako. Traitor, insane dictator, and undesirable asshole. May he never find rest.)
+Vira approached the markings, and read them, a look of both success and horror on faer face. *"Here lies Nexxus Drako. Traitor, insane dictator, and undesirable asshole. May he never find rest."* read the markings.
  
 
 “Found it. Dig.” whispered Vira. Karv then started digging. They had one job, and they couldn’t afford to fuck this up. It would mean disaster. She then hit wood, and started uncovering the coffin.  
